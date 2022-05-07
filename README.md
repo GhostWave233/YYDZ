@@ -27,11 +27,11 @@ One Salt Ding Zhen
 Appraised as: Iodine
 ```
 
-"One Salt" is "Yi1 Yan2" in Chinese, which sounds similar to "One Eye" (Yi1 Yan3). All these images are playing around with the "Yi1 Yan3" sound in the first part.
+In Chinese,"One Salt" ("Yi1 Yan2") sounds similar to "One Eye" (Yi1 Yan3). All these images are playing around with the "Yi1 Yan3" sound in the first part.
 
 "Appraised as" is another meme.
 
-"Iodine" is "Dian3" in Chinese, which sounds the same as "Classic" (Dian3), which is related to yet another meme ("Classically classic" = shitty).
+In Chinese,"Iodine" ("Dian3") sounds the same as "Classic" (Dian3), which is related to yet another meme ("Classically classic" = shitty).
 
 So all these images are both puns and connecting various memes.
 
